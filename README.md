@@ -1,31 +1,25 @@
 # ADINF-JOPSD-1
 
 
-
-
-[!video](https://github.com/jpcposth/ADINF-JOPSD-1/assets/150236863/8eb861d7-3c69-4994-8a86-23e8a3a03b84)
-
-
-
-[!video](https://github.com/jpcposth/ADINF-JOPSD-1/assets/150236863/960836d8-aae4-4073-bd98-bc43a9bf19d8)
+[!video](https://github.com/jpcposth/ADINF-JOPSD-1/assets/150236863/5c826a7f-1116-4bf9-a38a-4f1eb235fde3)
 
 
 
-[!video](https://github.com/jpcposth/ADINF-JOPSD-1/assets/150236863/2ca74266-0ab5-47e2-a69d-67b1ae825635)
+[!video](https://github.com/jpcposth/ADINF-JOPSD-1/assets/150236863/c1d1a4a4-8058-43b2-b00f-f27207865ccc)
 
 
 
-[!video](https://github.com/jpcposth/ADINF-JOPSD-1/assets/150236863/9e396eac-8a83-4925-972e-a57be25676dd)
+[!video](https://github.com/jpcposth/ADINF-JOPSD-1/assets/150236863/736b6c21-7b16-44a5-afbf-beca2f811cc7)
 
 
 
-[!video](https://github.com/jpcposth/ADINF-JOPSD-1/assets/150236863/a9447273-0eea-4074-8e33-1d37ea02964a)
+[!video](https://github.com/jpcposth/ADINF-JOPSD-1/assets/150236863/4ff84c7e-6e07-49a9-9fc3-bdbed970aa27)
 
 
 
-[!video](https://github.com/jpcposth/ADINF-JOPSD-1/assets/150236863/b675c97c-e4f9-4871-ad1b-66d462643da9)
+[!video](https://github.com/jpcposth/ADINF-JOPSD-1/assets/150236863/c47ff557-5e4a-4b4d-a46c-465291b67cef)
 
 
 
-[!video](https://github.com/jpcposth/ADINF-JOPSD-1/assets/150236863/726bcedb-be09-413f-a2b6-990a028b4d4d)
+[!video](https://github.com/jpcposth/ADINF-JOPSD-1/assets/150236863/6efa27ce-1825-4e3f-903e-d9ae3cf3765d)
 
